@@ -1,0 +1,2 @@
+# mazed
+www.facebook.com
